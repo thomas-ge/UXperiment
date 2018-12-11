@@ -6,4 +6,4 @@
 
 
 ## Current Experiment
-_There's no challenge going on right now – but stay tuned!_📻
+_There's no challenge going on right now – but stay tuned!_ 📻
